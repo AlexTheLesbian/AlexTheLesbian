@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlexTheLesbian!
+- 👀 I’m interested in coding, art, games and other.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate on coding since I'm new.
+- 📫 You can reach me by email which is in my profile.
